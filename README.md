@@ -1,1 +1,1 @@
-Laboratory from subject of cyberphysical systems
+Laboratory work from subject of cyberphysical systems
